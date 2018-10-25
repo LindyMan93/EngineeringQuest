@@ -2,7 +2,7 @@
 
 ## Objective:
 Today you will begin your Engineering Quest. It could take you to the depths of the dark web, or it could take you to around the world
-It is up to you to find all the prize. 
+It is up to you to find the clues to earn the prize. 
 
 ## Prize:
 Whoever finds the prize will win a free dinner bought by me (Nate). Under one condition. You all must come to Grand Rapids together for
